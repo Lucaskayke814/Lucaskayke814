@@ -1,4 +1,5 @@
-![header2](https://github.com/Lucaskayke814/Lucaskayke814/assets/125411283/01f3f25d-a9f0-427e-b70f-84b229fd5529)
+
+![0-destaque-linguagens-de-programacao-2019](https://github.com/Lucaskayke814/Lucaskayke814/assets/125411283/56115252-90bc-47cd-9161-3e31bc0e2bc5)
 
 # 👨🏽‍💻 Sobre Mim
 
